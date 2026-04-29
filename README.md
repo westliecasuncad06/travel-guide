@@ -1,3 +1,1 @@
-
-WEATHER SECTION
-FOOD TIPS
+The Ultimate Guide To Tokyo
