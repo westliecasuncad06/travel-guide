@@ -1,3 +1,1 @@
-
-WEATHER SECTION
-FOOD TIPS
+Tokyo Travel Tips 2024
